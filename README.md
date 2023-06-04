@@ -1,5 +1,9 @@
 # elyrodriguez
-## Oiii eu sou a ely rodrigues, estou aqui para aprender mais e mais e tambem passar algumas coisas que andei aprendendo com a raffa
+## Oiii eu sou a ely rodrigues, estou aqui para aprender mais e mais e também passar algumas coisas que andei aprendendo com a raffa,
+🏋️‍♂️ atualmente sou educadora fisica
+👩‍💻estudando analise de sistemas
+💻cursos com paulo borges e guanabara 
+
 
 
 <div style="display: inline_block"><br>
